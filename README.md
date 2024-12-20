@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any projects which relate to conflict, international security, and intelligence.
 - 📫 Drop me a line on Github or LinkedIn - https://www.linkedin.com/in/jakehernandez/.
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I think I was once a country's only confirmed Swine Flu case.
 
 <!---
 jakerecoded/jakerecoded is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
